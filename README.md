@@ -1,1 +1,1 @@
-![Pingu](https://giphy.com/embed/VkMV9TldsPd28)
+![Pingu](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWN2MDh5YWphdW1jeXRiaXVwbXJteDN4YzIycXFtNnZsa3lwYmF1eSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VkMV9TldsPd28/giphy.webp)
